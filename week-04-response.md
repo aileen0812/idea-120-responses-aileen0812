@@ -1,0 +1,2 @@
+#### Roland Barthes 
+Roland Barthes sends out a couple of messages when it came to looking at a certain image viewed by another medium. The three messages that Barthes revealed a linguistic message,a coded iconic message, and finally an uncoded iconic message.An advertisement such as for a pancake can show a lot of messages and can be conveyed when it comes to a food photographer.They are reading the image and are analyzing it because there goes on more in the background of a project than a regular person will see.
