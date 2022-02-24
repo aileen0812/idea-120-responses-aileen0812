@@ -1,0 +1,7 @@
+Weapons of math destruction also known as WMD talks about three certain elements. These elements being Opacity, Scale, and Damage. The author Cathy O'Neil speaks about modern aspects of life. She talks abot how things come to be, how people determine things. What do people actually deserve? Who can buy insurance?Who gets higher Sentenecs in prison?
+
+Moreover, O'Neil when O'Neil is talking about Opacity she means that it has to be explained for it to make sense. Like she said that trainsparency matters. She uses the example of a usher telling a person that they are not allowed to sit in certain rows, but when she is explained why then it makes ir more understandable than just telling the girl that she couldn't just sit there.
+
+When she talks about scale, I would say that she is talking about something like Tik tok for example. Tik tok is designed for a specific type of group. It is targted towards things that only you like. There is a for you page in tik tok. Theres different trends that happen almost all the time and it captures the attention of certain people.
+
+I would say Damage in the aspect that it negatively affects you in a certain way. An example of this would be being sentenced to prison. Everything adds up for how long a person would be in there for. What did they do? How long should they be in there? Should they be able to get parole? Everything begins to add up and it equals to the amount of time that they should do.
