@@ -1,0 +1,7 @@
+Anna Anthropy talks about the videogame and coding industry. She talks a lot about how the main people that are in this industry are white men. She talks about how there are barely any POC or women that are in this industry. She also talks about she is a transgender woman. She believes that the LGBTQ community should also become part of the video game and coding industry. 
+
+It is rare to hear that there are trans people in this industry. We mostly hear about men being in this industry. It would be nice to hear more about different communties joining. There would be a lot of difference and the stereotypes would end.
+
+She talks about because there are so many white men in the coding and video game industry that the games that are introduced are very call of duty like. It's them shooting at others and if other people. In the reading she states, "Mostly, videogames are about men shooting men in the face. Sometimes they are about women shooting men in the face" (anthropy 2). Each of the games have pretty much the same plot, they just have different characters and different visuals. Anna believes if POC, women, or the LGBTQ community came together, then the video gaming industry would be a little more different.
+
+I also believe that if different people joined then there would be more creativism. In the sense that there would be more games that are just not about shooting. Things would expand and there would be more perspectives in this and this will also open the doors to many other communities to join.
