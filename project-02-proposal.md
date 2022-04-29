@@ -1,0 +1,1 @@
+I am going to get a green blanket and have it for the background and then i am going to choose an image from my computer and going to put it behind me so that i would be able to be as if i was in a different type of enviornment and won't be able to see where i actually am.
